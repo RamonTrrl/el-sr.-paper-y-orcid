@@ -32,4 +32,4 @@ Y quizás todo sería más o menos aceptable, y hasta descansaríamos en paz, o 
 
 ## 📝😅 Epílogo: El Sr. Paper va a Rellenar su DNI
 
-Así que, por ahora lo dejo allí. Este su humilde servidor, el "Sr. Paper" se va a derechito rellenar su DNI académico, pues hasta ahora, está casi vacío, pues además de mi genial, "acerca de ", no hay nada más, en fin
+Así que, por ahora lo dejo allí. Este su humilde servidor, el "Sr. Paper" se va a derechito rellenar su DNI académico, pues hasta ahora, está casi vacío, pues además de mi genial, "acerca de ", no hay nada más, en fin !!!

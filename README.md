@@ -30,6 +30,6 @@ Bueno ahora, si por esas casualidades del destino lograste desarrollar cierta me
 
 Y quizás todo sería más o menos aceptable, y hasta descansaríamos en paz, o cuando menos estaríamos "take it easy", al saber que todas estas revistitas están libres de polvo y paja, pero como las malas lenguas nuevamente dicen: "son purita mafia y que contratan y dan trabajito solo a su exclusiva collera". Y de yapa, no hay quien controle a estos controladores.
 
-## 📝😅 Epílogo: El Sr. Paper va a Rellenar su DNI
+## 📝😅 Epílogo: El Sr. Paper se va a Rellenar su DNI
 
 Así que, por ahora lo dejo allí. Este su humilde servidor, el "Sr. Paper" se va a derechito rellenar su DNI académico, pues hasta ahora, está casi vacío, pues además de mi genial, "acerca de ", no hay nada más, en fin !!!
